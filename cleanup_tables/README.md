@@ -276,7 +276,7 @@ To use this procedure, you need:
 
 **Serhii Hinkul**
 
-- [LinkedIn](https://www.linkedin.com/in/ginkulsergei/)
+- [LinkedIn](https://www.linkedin.com/in/serhii-hinkul-83ba52153/?originalSubdomain=fr)
 - [GitHub](https://github.com/ginkulsergei)
 
 ## 💬 Feedback
